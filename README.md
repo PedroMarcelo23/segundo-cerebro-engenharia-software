@@ -69,7 +69,7 @@ Os seguintes materiais serão adicionados ao repositório:
 
 7. Link do notebook
 
-https://notebooklm.link.google/MkUOeW13hCp5
+https://notebooklm.google.com/notebook/17e68867-ad59-4730-83b4-90c574e3ac1f?utm_source=nlmm_share
 
 8. Conclusão
 
